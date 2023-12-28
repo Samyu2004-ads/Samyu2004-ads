@@ -1,5 +1,5 @@
  Hi, I’m SAMYUKTHA
- I’m interested in coding and learnig new skills
+ I’m interested in coding and learning new skills
  I’m currently learning b.tech in Artificial intelligence and Data Science
  you can  reach me via LinkedIn
  
